@@ -1,1 +1,1 @@
-# slovo.github.io
+# VSlovo.github.io
